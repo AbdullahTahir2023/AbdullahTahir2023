@@ -19,6 +19,8 @@
 
 - ⚡ Fact **I am a professional FPS and TPS gamer**
 
+- 📖 qulifications **O-level**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
